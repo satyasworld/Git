@@ -1,5 +1,5 @@
 Hi Satya,
 
 ...
-How Are You...?
+How Are You
 ...
